@@ -1,4 +1,4 @@
-
+elite Extension for Adobe Illustrator for macOS - layer styles and content-aware fill is the best Adobe Illustrator for macOS extension, featuring layer styles and content-aware
 
 
 
